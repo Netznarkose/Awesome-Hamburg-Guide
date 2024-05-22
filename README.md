@@ -2,7 +2,7 @@
 
 ![ninjakaisu.jpeg](images/ninjakaisu.jpeg)
 ## Hamburg: Wo Elbe und Alster die Herzen erobern
-[<https://vimeo.com/949067628?share=copy>]
+[<img src="https://vimeo.com/949067628?share=copy">](https://vimeo.com/949067628?share=copy)
 
 **Ahoi, Landlubber!** Lass dich von Hamburgs einzigartigem Charme entführen, wo hanseatisches Flair auf moderne Dynamik trifft. Die "Perle des Nordens" glitzert mit unzähligen Facetten, die jeden Reisenden begeistern. 
 
