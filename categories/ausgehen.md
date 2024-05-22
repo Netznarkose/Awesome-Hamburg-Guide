@@ -10,3 +10,9 @@ Hinter der Fenstergalerie und dem Atrium mit vielen internationalen Luxusmarken 
 
 Das Alsterhaus ist mehr als nur ein Kaufhaus. Es ist ein Ort, an dem Qualität, Vielfalt und Exklusivität gefeiert werden.
 
+
+Die Elbphilharmonie:
+
+Die Elbphilharmonie in Hamburg ist ein großartiger Ort für einen Abend ausgehen, besonders wegen ihrer erstklassigen Orchesterveranstaltungen. Der weltberühmte Dirigent Daniel Barenboim sagte über die Elbphilharmonie: "Dieses Haus ist ein Wunder." Die beeindruckende Architektur mit der markanten Glasfassade über dem alten Kaispeicher und die hervorragende Akustik machen jedes Konzert zu einem unvergesslichen Erlebnis. Die Plaza, eine öffentlich zugängliche Aussichtsplattform, bietet Besuchern einen 360-Grad-Blick über Hamburg und ist sowohl tagsüber als auch abends ein Highlight.
+
+Zusätzlich gibt es in der Elbphilharmonie großartige kulinarische Angebote, die den Besuch abrunden. Die Restaurants und Bars im Gebäude bieten eine Vielfalt an exquisiten Speisen und Getränken. Ob ein schickes Dinner im stilvollen Restaurant Störtebeker vor dem Konzert oder ein entspannter Drink in der Plaza-Bar mit Blick über die Stadt – das gastronomische Angebot sorgt dafür, dass der Abend perfekt wird. Ein Besuch in der Elbphilharmonie ist mehr als nur ein Konzertbesuch – es ist ein Erlebnis für alle Sinne.
