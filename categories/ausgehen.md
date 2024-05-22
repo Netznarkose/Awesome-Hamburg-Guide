@@ -14,7 +14,7 @@ Hinter der Fenstergalerie und dem Atrium mit vielen internationalen Luxusmarken 
 
 Das Alsterhaus ist mehr als nur ein Kaufhaus. Es ist ein Ort, an dem Qualität, Vielfalt und Exklusivität gefeiert werden.
 
-![alterhaus.jpg](images%alsterhaus.jpg)
+![alterhaus.jpg](images/alsterhaus.jpg)
 
 Die Elbphilharmonie:
 
