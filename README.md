@@ -2,7 +2,7 @@
 
 ![ninjakaisu.jpeg](images/ninjakaisu.jpeg)
 ## Hamburg: Wo Elbe und Alster die Herzen erobern
-https://streamable.com/1z8avk
+[![Watch the video](https://streamable.com/1z8avk)
 
 **Ahoi, Landlubber!** Lass dich von Hamburgs einzigartigem Charme entführen, wo hanseatisches Flair auf moderne Dynamik trifft. Die "Perle des Nordens" glitzert mit unzähligen Facetten, die jeden Reisenden begeistern. 
 
