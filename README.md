@@ -2,7 +2,7 @@
 
 ![ninjakaisu.jpeg](images/ninjakaisu.jpeg)
 ## Hamburg: Wo Elbe und Alster die Herzen erobern
-[![Hamburg auf die eis](https://www.ingame.de/assets/images/34/6/34006622-apored-video-zusammenfassung-millionen-schreibtisch-statement-titelbild-youtube-ingame-hamburg-e70.jpg)](https://streamable.com/1z8avk)
+[![Hamburg auf die eis]](https://streamable.com/1z8avk)
 
 **Ahoi, Landlubber!** Lass dich von Hamburgs einzigartigem Charme entführen, wo hanseatisches Flair auf moderne Dynamik trifft. Die "Perle des Nordens" glitzert mit unzähligen Facetten, die jeden Reisenden begeistern. 
 
