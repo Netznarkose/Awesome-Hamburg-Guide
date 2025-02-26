@@ -20,6 +20,8 @@
 
 ## 3. Schanzenviertel & Karoviertel – Alternative & individuelle Mode 🎨  
 
+![](schulterblatt_schanze_rundgang_©_mediaserver.hamburg.de___andreas_vallbracht.jpg)
+
 - **Kleine Boutiquen, Vintage-Stores & nachhaltige Labels**  
 - **Hamburger Ding** & **LOCKENGELÖT** für kreative Geschenkideen  
 - Perfekt für **einzigartige Mode** abseits des Mainstreams  
