@@ -45,3 +45,9 @@ Der Winterwald im Planten un Blomen ist eine der stimmungsvollsten Veranstaltung
 Besucher können durch den mit Lichtern erleuchteten Park flanieren, das winterliche Flair genießen und bei einer Tasse heißen Glühwein oder Punsch verweilen. Der Winterwald bietet zudem eine Vielzahl von Aktivitäten und Events für die ganze Familie, wie zum Beispiel das Winter-Eisstockschießen oder die Möglichkeit, auf einer kleinen Eisbahn Schlittschuh zu fahren. Zudem gibt es kleine Stände, die handgemachte Produkte und winterliche Leckereien verkaufen.
 
 In Kombination mit der naturnahen Umgebung von Planten un Blomen ist der Winterwald nicht nur ein Ort der Erholung, sondern auch ein kulturelles Highlight der Stadt. Es ist ein Event, das für die ganze Familie geeignet ist und den Hamburgern sowie Besuchern einen besonderen Zugang zu Hamburgs Winterzauber bietet.
+
+
+Verbesserung:
+
+Den Text formatieren wäre super.
+Die Abschnittsüberschriften unterscheiden sich nicht vom Text, vielleicht als Überschrift markieren mit ## oder Fett machen mit **
