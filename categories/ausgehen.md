@@ -32,8 +32,11 @@ Hier mischt sich das bunte Leben von St. Pauli: Feiernde decken sich mit Nachsch
 Der **Hamburger Dom** ist Norddeutschlands größtes Volksfest und findet dreimal jährlich auf dem Heiligengeistfeld statt. Im Jahr 2025 sind die Termine wie folgt:
 
 Frühlingsdom: 21. März bis 21. April 2025
+
 Sommerdom: 25. Juli bis 24. August 2025
+
 Winterdom: 7. November bis 7. Dezember 2025
+
 Die Öffnungszeiten sind montags bis donnerstags von 15:00 bis 23:00 Uhr, freitags und samstags von 15:00 bis 24:00 Uhr und sonntags von 14:00 bis 23:00 Uhr. Jeden Freitag um 22:30 Uhr erleuchtet ein Feuerwerk den Himmel über St. Pauli. Mittwochs ist Familientag mit ermäßigten Preisen auf viele Attraktionen. Der Eintritt ist frei; Kosten fallen nur für Fahrgeschäfte und Verpflegung an. 
 HAMBURG.DE
 
