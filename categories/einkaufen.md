@@ -27,4 +27,4 @@
 ### 🎟 Fazit: Shopping für jeden Geschmack  
 Egal, ob du **Luxus, Trendmarken oder individuelle Mode** suchst – **Hamburg hat alles!**  
 
-👉 **Jetzt losshoppen & die Vielfalt der Stadt entdecken!** 🛒🏙️  
+👉 **Jetzt los shoppen & die Vielfalt der Stadt entdecken!** 🛒🏙️
