@@ -10,6 +10,8 @@
 
 ## 2. Neuer Wall & Jungfernstieg – Luxus & Designermarken ✨  
 
+![](Hamburg_Neuer_Wall_Weihnachten_02.jpg)
+
 - **Edle Boutiquen & Flagship-Stores** (Louis Vuitton, Gucci, Chanel)  
 - **Alsterhaus**: Exklusives Kaufhaus mit **High-End-Mode & Beauty**  
 - Wunderschöne Kulisse **direkt an der Binnenalster**  
