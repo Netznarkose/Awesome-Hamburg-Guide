@@ -29,3 +29,4 @@ Der Hamburger Hafengeburtstag
 Ein weiteres kulturelles Highlight in Hamburg ist der Hamburger Hafengeburtstag, das größte Hafenfest der Welt. Jedes Jahr im Mai verwandelt sich der Hafen in eine bunte Feiermeile mit zahlreichen Veranstaltungen, darunter Schiffparaden, Schiffsbesichtigungen, maritimes Feuerwerk und ein abwechslungsreiches Bühnenprogramm. Besucher können historische Schiffe bewundern, an Bord moderner Kreuzfahrtschiffe gehen und maritime Kulinarik genießen. Der Hafengeburtstag bietet eine einzigartige Gelegenheit, die maritime Tradition Hamburgs zu erleben und die pulsierende Atmosphäre des Hafens zu genießen.
 
 Hafengeburtstag Hamburg: Tipps für das größte Hafenfest der Welt
+Der Hafengeburtstag Hamburg ist einer der beliebtesten Events der Hansestadt. Rund eine Million Besucher strömen jährlich zur Mega-Party im Hamburger Hafen. Hier findest du Tipps, um dich im Trubel zurechtzufinden
