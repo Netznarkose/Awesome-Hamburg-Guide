@@ -1,6 +1,6 @@
 # 🛍 Shopping in Hamburg – Die besten Einkaufsviertel  
 
-## 1️. Mönckebergstraße & Spitalerstraße – Klassiker für Shopping-Fans 🏙️  
+## 1. Mönckebergstraße & Spitalerstraße – Klassiker für Shopping-Fans 🏙️  
 
 - Große **Fußgängerzone** mit allen bekannten Marken (**H&M, Zara, Saturn** etc.)  
 - **Europa Passage**: Mall mit über **120 Geschäften** & **Food Court**  
@@ -8,7 +8,7 @@
 
 ---
 
-## 2️. Neuer Wall & Jungfernstieg – Luxus & Designermarken ✨  
+## 2. Neuer Wall & Jungfernstieg – Luxus & Designermarken ✨  
 
 - **Edle Boutiquen & Flagship-Stores** (Louis Vuitton, Gucci, Chanel)  
 - **Alsterhaus**: Exklusives Kaufhaus mit **High-End-Mode & Beauty**  
