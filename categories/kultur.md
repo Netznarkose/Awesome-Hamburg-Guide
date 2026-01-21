@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 # DER KÖNIG DER LÖWEN
 ![bild-koenig-der-loewen-2022.jpg](..%2Fimages%2Fbild-koenig-der-loewen-2022.jpg)
 Original afrikanische Rhythmen
@@ -27,3 +28,5 @@ Musikfans sollten das Stadtpark Open Air nicht verpassen, das von Mai bis Septem
 Der Hamburger Hafengeburtstag
 
 Ein weiteres kulturelles Highlight in Hamburg ist der Hamburger Hafengeburtstag, das größte Hafenfest der Welt. Jedes Jahr im Mai verwandelt sich der Hafen in eine bunte Feiermeile mit zahlreichen Veranstaltungen, darunter Schiffparaden, Schiffsbesichtigungen, maritimes Feuerwerk und ein abwechslungsreiches Bühnenprogramm. Besucher können historische Schiffe bewundern, an Bord moderner Kreuzfahrtschiffe gehen und maritime Kulinarik genießen. Der Hafengeburtstag bietet eine einzigartige Gelegenheit, die maritime Tradition Hamburgs zu erleben und die pulsierende Atmosphäre des Hafens zu genießen.
+=======
+>>>>>>> parent of 79da522 (Add kultur)
