@@ -50,12 +50,3 @@ Mit der Eintrittskarte nutzt du nicht nur alle teilnehmenden Museen, sondern auc
 
 **Pro-Tipp**: Kombi-Tickets für Lange Nacht der Museen + Musikfestival gibt es oft vergünstigt – beide Events starten am selben Tag!
 
----
-
-## 🗓️ Save the Date: 26. April 2025
-
-Zwei der wichtigsten Kultur-Events Hamburgs starten am selben Abend. Die perfekte Gelegenheit, um mit Kunst in den Abend zu starten und mit Live-Musik in die Nacht zu tanzen. Hamburg zeigt sich von seiner kulturellen Schokoladenseite – und du bist mittendrin.
-
-**Tickets & Infos:**
-- [Lange Nacht der Museen Hamburg](https://www.langenachtdermuseen-hamburg.de/)
-- [Internationales Musikfestival Hamburg](https://www.culturall.de/)
